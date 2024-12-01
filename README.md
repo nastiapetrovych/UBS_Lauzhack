@@ -1,1 +1,1 @@
-Team members: Anastasiia Petrovych, Anna Polova, Abhijeet Sharma
+Team members: Anastasiia Petrovych, Anna Polova, Abhijeet Sharma, Wafiq Chahboun
